@@ -1,1 +1,0 @@
-# Terms-Conditions-Fingerprint---Fortune-Telling
